@@ -20,4 +20,4 @@ Berk Bingöl - [@berkbingol](https://github.com/BerkBingol)
 
 Oğuz Bayhun - [@obayhun](https://github.com/obayhun)
 
-Eren Ege Özol - [@erenege743](https://github.com/erenege743)
+Eren Ege Özol - [@eozol17](https://github.com/eozol17)
